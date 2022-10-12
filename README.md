@@ -3,3 +3,4 @@
 - 🌱 I'm currently studying at National Technical University of Ukraine "Igor Sikorsky Kyiv Polytechnic Institute".
 - 📫 How to contact me? 
   My main email is kondraschenko.vadim@gmail.com
+  Good Luck!;)
